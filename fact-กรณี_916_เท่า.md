@@ -1,6 +1,14 @@
 https://www.facebook.com/NodeJsThailandDeveloper/photos/a.182507422322846/280784895828431/
 ![image](https://user-images.githubusercontent.com/56834844/67228933-78141600-f464-11e9-80d5-7c7ba945aa59.png)
 
+ลิงก์ในภาพ
+clip 1
+https://youtu.be/fQh_i57rZt8
+clip 2
+https://youtu.be/XG_up6bNP5k
+clip 3
+https://youtu.be/YrZ1H0iUZ8Q
+
 https://www.facebook.com/NodeJsThailandDeveloper/photos/a.187854498454805/281950132378574/
 ![image](https://user-images.githubusercontent.com/56834844/67228974-8e21d680-f464-11e9-8dc1-e1bc23a867a1.png)
 
