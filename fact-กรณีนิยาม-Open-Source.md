@@ -10,3 +10,8 @@
 # มีผู้โดนเตะมากมาย 555
 ![image](https://user-images.githubusercontent.com/56834844/106102957-c25d6a00-6172-11eb-9713-28649fb0d99c.png)
 
+# "อิจฉาแหละดูออก!"
+
+![image](https://user-images.githubusercontent.com/56834844/106110555-749a2f00-617d-11eb-8c29-082e2fa63712.png)
+
+![image](https://user-images.githubusercontent.com/56834844/106110524-6ba95d80-617d-11eb-8b0e-162b28aa3c00.png)
