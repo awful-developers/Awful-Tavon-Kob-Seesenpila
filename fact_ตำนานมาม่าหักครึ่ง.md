@@ -17,3 +17,9 @@
 https://www.blockdit.com/articles/5dfaf2470d4b8e0cf0b575c4
 
 ปล.ทำไมไม่เอาเงินซื้อข้าวที่มากินกับมาม่าไปซื้อมาม่าอีกซองล่ะ?
+
+--
+ส่วนนี่ อ.กบแกโพสต์เอง
+
+![FB_IMG_1611941147355](https://user-images.githubusercontent.com/56834844/106307343-ce8c1900-6291-11eb-9420-54d900b3b8ba.jpg)
+
