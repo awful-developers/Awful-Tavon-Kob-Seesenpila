@@ -10,7 +10,9 @@
 
 
 - ขอบคุณข้อมูลบางส่วนจากช่องยูทูป iamdeveloper
+![image](https://user-images.githubusercontent.com/31118358/106301765-b2d14480-628a-11eb-9cee-78112563b123.png)
 
+เจ้าของเดียวกับ pingpong softนั่นเอง
 
 https://www.blockdit.com/articles/5dfaf2470d4b8e0cf0b575c4
 
