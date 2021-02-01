@@ -67,7 +67,7 @@ _(ไม่เกี่ยวข้องกับเนื้อหาหลั
 
 ซึ่งอ.กบก็ทำตามที่เรียกร้องแต่เป็นการใช้ Uno Reverse Card ทำการเตะผู้ที่เรียกร้องออกจากกลุ่มแทน
 
-![](https://user-images.githubusercontent.com/78331701/106412861-44070d80-647b-11eb-8dfd-b6f659a72b6e.jpg)
+![](https://user-images.githubusercontent.com/78331701/106423876-d74c3d00-6493-11eb-8627-a79a3fd68132.jpg)
 
 ---
 
